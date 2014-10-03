@@ -5,22 +5,19 @@ This repository contains links to mp3 files for available lectures in the Stanfo
 #Lectures
 1) Sam Altman & Dustin Moskovitz - Ideas, Products, Teams and Execution, Part I & Why to Start a Startup
 
-http://bit.ly/1pxAAEi
-
+http://bit.ly/1EayG65
 
 2) Sam Altman - Ideas, Products, Teams and Execution, Part II
 
-http://bit.ly/1n0g1Vk
-
+http://bit.ly/10pQrit
 
 3) Paul Graham - Counterintuitive Parts of Startups, and How to Have Ideas
 
-http://bit.ly/1Ea3qEw
+http://bit.ly/1uIo3Vn
 
 4) Adora Cheung - Building Products, Talking to Users, and Growing
 
-http://bit.ly/10pxD2W
-
+http://bit.ly/1rJ7Dbu
 
 ##Disclaimer
 
