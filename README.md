@@ -1,15 +1,25 @@
 #How To Start A Startup (Audio)
 
-This repository contains zipped mp3 files for available lectures in the Stanford course "CS 183B: How to Start a Startup". The repo will be updated as new lectures become available.
+This repository contains links to mp3 files for available lectures in the Stanford course "CS 183B: How to Start a Startup". The repo will be updated as new lectures become available.
 
 #Lectures
 1) Sam Altman & Dustin Moskovitz - Ideas, Products, Teams and Execution, Part I & Why to Start a Startup
 
+http://bit.ly/1pxAAEi
+
+
 2) Sam Altman - Ideas, Products, Teams and Execution, Part II
+
+http://bit.ly/1n0g1Vk
+
 
 3) Paul Graham - Counterintuitive Parts of Startups, and How to Have Ideas
 
+http://bit.ly/1Ea3qEw
+
 4) Adora Cheung - Building Products, Talking to Users, and Growing
+
+http://bit.ly/10pxD2W
 
 
 ##Disclaimer
