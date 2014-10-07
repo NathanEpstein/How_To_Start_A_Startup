@@ -19,6 +19,10 @@ http://bit.ly/1uIo3Vn
 
 http://bit.ly/1rJ7Dbu
 
+5) Peter Thiel - Business Strategy and Monopoly Theory
+
+http://bit.ly/1nccVh8
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
