@@ -23,6 +23,10 @@ http://bit.ly/1rJ7Dbu
 
 http://bit.ly/1nccVh8
 
+6) Alex Schultz - Growth
+
+http://bit.ly/1s2xGdY
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
