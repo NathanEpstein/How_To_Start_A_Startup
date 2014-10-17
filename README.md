@@ -31,6 +31,10 @@ http://bit.ly/1s2xGdY
 
 http://bit.ly/1yAQtCk
 
+8) Stanley Tang, Walker Williams, and Justin Kan - Doing Things that Don't Scale, Press, How to Get Started
+
+http://bit.ly/1sQhj5Q
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
