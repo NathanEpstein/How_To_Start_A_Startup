@@ -35,6 +35,11 @@ http://bit.ly/1yAQtCk
 
 http://bit.ly/1sQhj5Q
 
+9) Marc Andreessen, Ron Conway, and Parker Conrad - How To Start A Startup How To Raise Money
+
+http://bit.ly/1s7Rppd
+
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
