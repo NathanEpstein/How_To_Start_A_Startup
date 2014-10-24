@@ -39,6 +39,10 @@ http://bit.ly/1sQhj5Q
 
 http://bit.ly/1s7Rppd
 
+10) Brian Chesky and Alfred Lin - Culture and Hiring
+
+http://bit.ly/1sf4flE
+
 
 ##Disclaimer
 
