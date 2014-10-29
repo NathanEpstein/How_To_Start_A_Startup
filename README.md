@@ -43,6 +43,10 @@ http://bit.ly/1s7Rppd
 
 http://bit.ly/1sf4flE
 
+11) John Collison, Patrick Collison, and Ben Silberman - Hiring And Culture, Part 2
+
+http://bit.ly/1pYghjJ
+
 
 ##Disclaimer
 
