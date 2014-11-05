@@ -51,6 +51,10 @@ http://bit.ly/1pYghjJ
 
 http://bit.ly/1tI0g6p
 
+13) Reid Hoffman - How To Be A Great Founder
+
+http://bit.ly/1pnju1C
+
 
 ##Disclaimer
 
