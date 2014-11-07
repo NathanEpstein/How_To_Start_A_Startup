@@ -55,6 +55,9 @@ http://bit.ly/1tI0g6p
 
 http://bit.ly/1pnju1C
 
+14) Keith Rabois - How To Operate
+
+http://bit.ly/1Eb2Ao0
 
 ##Disclaimer
 
