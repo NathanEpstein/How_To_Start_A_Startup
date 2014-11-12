@@ -59,6 +59,10 @@ http://bit.ly/1pnju1C
 
 http://bit.ly/1Eb2Ao0
 
+15) Ben Horowitz - How To Manage
+
+http://bit.ly/1oIsNIT
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
