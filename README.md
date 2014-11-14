@@ -63,6 +63,11 @@ http://bit.ly/1Eb2Ao0
 
 http://bit.ly/1oIsNIT
 
+16) Emmett Shear - How to Run a User Interview
+
+http://bit.ly/1xEpXpW
+
+
 ##Disclaimer
 
 I do not claim to be the owner of any content related to this course. If you are the rightful owner of this content and wish to have it removed, please contact me (ne2210@columbia.edu).
