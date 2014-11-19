@@ -67,6 +67,10 @@ http://bit.ly/1oIsNIT
 
 http://bit.ly/1xEpXpW
 
+17) Hosain Rahman - How to Design Hardware Products
+
+http://bit.ly/1uvRVSs
+
 
 ##Disclaimer
 
