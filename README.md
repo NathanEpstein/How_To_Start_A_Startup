@@ -31,19 +31,19 @@ http://bit.ly/1s2xGdY
 
 http://bit.ly/1yAQtCk
 
-8) Stanley Tang, Walker Williams, and Justin Kan - Doing Things that Don't Scale, Press, How to Get Started
+8) Stanley Tang, Walker Williams, & Justin Kan - Doing Things that Don't Scale, Press, How to Get Started
 
 http://bit.ly/1sQhj5Q
 
-9) Marc Andreessen, Ron Conway, and Parker Conrad - How To Start A Startup How To Raise Money
+9) Marc Andreessen, Ron Conway, & Parker Conrad - How To Start A Startup How To Raise Money
 
 http://bit.ly/1s7Rppd
 
-10) Brian Chesky and Alfred Lin - Culture and Hiring
+10) Brian Chesky & Alfred Lin - Culture and Hiring
 
 http://bit.ly/1sf4flE
 
-11) John Collison, Patrick Collison, and Ben Silberman - Hiring And Culture, Part 2
+11) John Collison, Patrick Collison, & Ben Silberman - Hiring And Culture, Part 2
 
 http://bit.ly/1pYghjJ
 
@@ -70,6 +70,10 @@ http://bit.ly/1xEpXpW
 17) Hosain Rahman - How to Design Hardware Products
 
 http://bit.ly/1uvRVSs
+
+18) Kirsty Nathoo & Carolynn Levy - Legal and Accounting Basics for Startups
+
+http://bit.ly/11zSD70
 
 
 ##Disclaimer
