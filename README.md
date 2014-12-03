@@ -75,6 +75,10 @@ http://bit.ly/1uvRVSs
 
 http://bit.ly/11zSD70
 
+19) Tyler Bosmeny, Michael Seibel, Qasar Younis, & Dalton Caldwell - Sales And Marketing / How To Talk To Investors
+
+http://bit.ly/12tMNoY
+
 
 ##Disclaimer
 
