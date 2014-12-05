@@ -79,6 +79,10 @@ http://bit.ly/11zSD70
 
 http://bit.ly/12tMNoY
 
+20) Sam Altman - Later-Stage Advice
+
+http://bit.ly/1pZzuXJ
+
 
 ##Disclaimer
 
